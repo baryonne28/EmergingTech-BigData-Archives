@@ -1,5 +1,5 @@
 # EMERGING TECHNOLOGIES, BIG DATA & ARCHIVES 
-![Image with writings. big dada archives and emerging technologies!](/CLIR.jpg)
+![Image or artificial intelligence and bid data. big dada archives and emerging technologies!](/emerging.jpg)
                     
                     Welcome to Emerging Technologies, Big Data & Archives Series 
 
